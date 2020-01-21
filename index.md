@@ -1,12 +1,11 @@
-## Witaj na stronie pomocy AFM Dziekanat
+## Witaj na stronie wsparcia Studly.
 
-Jeśli potrzebujesz pomocy z aplikacją to napisz maila na:
+Jeżeli potrzebujesz pomocy z aplikacją, śmiało, napisz wiadomość na maila!
 pk67446@student-afm.edu.pl
 
-### No i to tyle
+### Proste, prawda?
 
-Chcesz pomóc przy aplikacji? Też napisz maila.
+Chcesz pomóc przy aplikacji? 
+Skontaktuj się z nami pod tym samym adresem.
 
-### Ile czasu tworzymy aplikacje?
-
-Dwie godziny tygodniowo :) To tyle co NIC ;/
+### 
