@@ -2,7 +2,7 @@
 
 Jeżeli potrzebujesz pomocy z aplikacją, śmiało, napisz wiadomość na maila!
 
- - pk67446@student-afm.edu.pl
+ - kontakt@studly.pl
 
 ### Proste, prawda?
 
